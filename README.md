@@ -10,7 +10,9 @@ I also like startups and am looking forward to make my own company (Project Hack
 
 Fun Fact: I love networking and social media. I am a member of the LGBTQ community. I like to eat sushi and chocolate. I just joined [Hack Club](https://hackclub.com/) as a club leader a few weeks ago.
 
-# My Contact Information & Social Media Links
+### My Contact Information & Social Media Links
 [Facebook](https://www.facebook.com/betsyzhang162/)
 
 [Twitter](https://twitter.com/BetsyZhang10)
+
+or you can [Email Me](mailto:bezhang8@gmail.com).
