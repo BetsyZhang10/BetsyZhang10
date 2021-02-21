@@ -15,4 +15,4 @@ Fun Fact: I love networking and social media. I am a member of the LGBTQ communi
 
 [Twitter](https://twitter.com/BetsyZhang10)
 
-or you can [Email Me](mailto:bezhang8@gmail.com).
+You can also [Email Me](mailto:bezhang8@gmail.com).
