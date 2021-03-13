@@ -11,12 +11,13 @@ I also like startups and am looking forward to make my own company (Project Hack
 Fun Fact: I love networking and social media. I am a member of the LGBTQ community. I like to eat sushi and chocolate. I just joined [Hack Club](https://hackclub.com/) as a club leader a few weeks ago.
 
 **Update 3/13/21:**
-I forgot to mention that I am also a student with disabilities. I also have an (IEP)[https://www.schools.nyc.gov/learning/special-education/the-iep-process/the-iep] since grade school. I have (hearing loss)[https://www.mayoclinic.org/diseases-conditions/hearing-loss/symptoms-causes/syc-20373072] and (Graves Disease)[https://www.mayoclinic.org/diseases-conditions/graves-disease/symptoms-causes/syc-20356240].
-Oh and I love Scrapbook!
+I forgot to mention that I am also a student with disabilities. I also have an [IEP](https://www.schools.nyc.gov/learning/special-education/the-iep-process/the-iep) since grade school. I have [hearing loss](https://www.mayoclinic.org/diseases-conditions/hearing-loss/symptoms-causes/syc-20373072) and [Graves Disease](https://www.mayoclinic.org/diseases-conditions/graves-disease/symptoms-causes/syc-20356240).
+Oh and I love [Scrapbook](https://scrapbook.hackclub.com/)!
 
-### My Contact Information
+### Internet Archives
 [Facebook](https://www.facebook.com/betsyzhang162/)
 
 [Twitter](https://twitter.com/BetsyZhang10)
 
 📧[Email](mailto:bezhang8@gmail.com)
+!(https://assets.hackclub.com/icon-square.png)[My Scrapbook](https://scrapbook.hackclub.com/BetsyZhang/)
