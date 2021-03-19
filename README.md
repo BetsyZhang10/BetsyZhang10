@@ -3,8 +3,6 @@
 <!--
 **BetsyZhang10/BetsyZhang10** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 -->
-👋
-Hello!
 
 I am a junior in Francis Lewis High School in New York. I am currently studying for the SAT that I am taking on April 13th 2021. I’m also currently working on organizing my new club at school, redisigning my club's website, and templates for my club's projects on GitHub. I’m looking for help with some cool CSS styling tricks for my website.
 
