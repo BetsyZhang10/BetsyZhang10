@@ -13,7 +13,7 @@ CEO of a future startup (@CSOpen) 🚀
 - Part of the LGBTQ+ community: bisexual and gender uncomforming 🏳️‍🌈
 - Part of my school's key club 🔑 and science olympiad 👩‍🔬
 - Loves computers and math 🔢
-- Recently became an environmental activist and digital marketing coordinator at [ProjectEnv](projectenv.org)
+- Recently became an environmental activist and digital marketing coordinator at [The Environment Project](projectenv.org)
 
 
 Mostly writes code nowadays. 💻  
