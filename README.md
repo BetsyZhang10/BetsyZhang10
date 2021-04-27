@@ -15,6 +15,12 @@ CEO of a future startup (@CSOpen) 🚀
 - Loves computers and math 🔢
 - Recently became an environmental activist and digital marketing coordinator at [The Environment Project](https://projectenv.org)
 
+### Languages  
+- HTML
+- JavaScript
+- Markdown (md & mdx)
+- Python (just started)
+
 
 Mostly writes code nowadays. 💻  
 Personal website coming soon! 🖥️  
