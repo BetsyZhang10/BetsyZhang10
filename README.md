@@ -6,9 +6,10 @@
 I'm a high school junior in New York. 
 
 **Fun Facts**  
-- LGBTQ+
 - Part of my school's science olympiad 👩‍🔬
 - Loves computers and math 🔢
 
 Mostly writes code nowadays. 💻  
 Personal website coming soon! 🖥️  
+
+Launching launching launching launching....
